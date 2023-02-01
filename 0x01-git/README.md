@@ -1,1 +1,2 @@
-Using git has been refreshing
+Using git has been amazing
+Good morning my peoples
